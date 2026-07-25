@@ -16,7 +16,7 @@
 
 *Childe (GI) & Mayoi Ayase (Enstars) IRL*
 
-I like people watching on PonyTown, Im very shy and hate crowds.
+I like people watching on PonyTown, Im very shy and hate crowds. Off tab or multitasking most of the time, whisper me if you need me ^_^
 
 If you like Madara Mikejima or Ensemble Stars in general (and aren't a weirdo), please talk to me. Im awkward but I like talking about mama. Madara Mikejima is my mom #yay
 
