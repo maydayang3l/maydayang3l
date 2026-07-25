@@ -1,6 +1,6 @@
 
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/ensemble-stars/images/c/c9/%28Orbiting_Future%29_Madara_Mikejima_Chibi.gif/revision/latest?cb=20260302061547"/>
+  <img src="https://static.wikia.nocookie.net/ensemble-stars/images/c/c9/%28Orbiting_Future%29_Madara_Mikejima_Chibi.gif/revision/latest?cb=20260302061547"  width="355" height="367"/>
 </p>
 <div align="center">
   
