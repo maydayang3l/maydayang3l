@@ -18,6 +18,8 @@
 
 I like people watching on PonyTown, Im very shy and hate crowds. Off tab or multitasking most of the time, whisper me if you need me ^_^ I do apologize if I run away though, Im trying my best lol.
 
+Im honestly kind of a loser and pathetic but i like talking and making friends PLEASE PLEAAASSEE
+
 If you like Madara Mikejima or Ensemble Stars in general (and aren't a weirdo), please talk to me. Im awkward but I like talking about mama. Madara Mikejima is my mom #yay
 
 [Basic DNI](https://dni-criteria.carrd.co/), proship/darkship/etc etc. That shit makes me uncomfortable.
