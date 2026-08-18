@@ -14,7 +14,7 @@
 
 *19 - Autistic - Transmasc Xenogender - Alterhuman*
 
-*Childe (GI) & Mayoi Ayase (Enstars) IRL*
+*Childe (GI) & Mayoi Ayase (Enstars) IRL / fictkin / secret third thing*
 
 I like people watching on PonyTown, Im very shy and hate crowds. Off tab or multitasking most of the time, whisper me if you need me ^_^ I do apologize if I run away though, Im trying my best lol.
 
